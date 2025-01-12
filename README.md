@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **mamidalashivasai789@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TlCezu8Wjp76Y15mjG0UUYK-kHDorX_U/view?usp=sharing](https://drive.google.com/file/d/1XEsMzajF_RNod7Pcw5lamZYWgNDc9k4t/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1TlCezu8Wjp76Y15mjG0UUYK-kHDorX_U/view?usp=sharing](https://drive.google.com/file/d/16gfDvZ24kFmJqQNTvB2dxG9ac6SoXzIG/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
